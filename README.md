@@ -10,9 +10,7 @@
 
 ![image alt](https://i.imgur.com/yXpiMIt.gif)names :
 
-![image alt](https://i.imgur.com/vDattrN.gif)finn ( most pref )
-
-![image alt](https://i.imgur.com/2vXCQIc.gif)angel
+![image alt](https://i.imgur.com/vDattrN.gif)via ( most pref )
 
 ![image alt](https://i.imgur.com/arWmuJr.gif)chance
 
