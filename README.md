@@ -1,4 +1,4 @@
-## something something ... lalala
+## placeholder readme . will make a new one soon
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ipmuhokratm1uxdrm3j975g6y&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
